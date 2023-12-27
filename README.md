@@ -1,3 +1,1 @@
-### Hi and welcome to my profile!
-
-- Junior java programmer☕
+### Hi and welcome to my profile :3
