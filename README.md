@@ -1,3 +1,3 @@
-### Hi and welcome to my profile :3 🏳️‍⚧️
-I work at @VermillionProducts
-I'm a silly person
+### ⋆˙⟡ Welcome to my profile ⋆˚࿔
+## I work at @VermillionProducts ⭑.ᐟ
+# Infinium SMP Owner ˙✧˖°📷 ༘ ⋆｡˚
